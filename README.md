@@ -1,4 +1,4 @@
-## Hi there 👋
+## El tiempo es el gran asesino silencioso ⌛
 
 <!--
 **StroperFlame/StroperFlame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
