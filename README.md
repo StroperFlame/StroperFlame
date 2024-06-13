@@ -1,4 +1,4 @@
-## El tiempo es el gran asesino silencioso ⌛
+## La paz nunca fue una opción 
 
 <!--
 **StroperFlame/StroperFlame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
